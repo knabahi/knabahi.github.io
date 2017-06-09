@@ -26,7 +26,7 @@ Syntax highlighted code block
 ![Image](https://upload.wikimedia.org/wikipedia/en/8/8d/Zero-mmx.png)
 
 ###**Good Waifu:**
-![Image](https://www.avert.org/sites/default/files/styles/article_scale_style_780/public/Science.jpg?itok=GsQOoPHn&timestamp=1454087005)
+![Image](https://i1.wp.com/tanknutdave.com/wp-content/uploads/2015/04/Jagdpanzer-IV-V.jpg)
 
 ###**Bad Waifu:**
 ![Image](https://upload.wikimedia.org/wikipedia/commons/b/ba/Bundesarchiv_Bild_101I-299-1805-16%2C_Nordfrankreich%2C_Panzer_VI_%28Tiger_I%29.2.jpg)
