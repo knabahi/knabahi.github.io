@@ -26,7 +26,7 @@ Syntax highlighted code block
 ![Image](https://upload.wikimedia.org/wikipedia/en/8/8d/Zero-mmx.png)
 
 ###**Good Waifu:**
-![Image](http://vignette2.wikia.nocookie.net/hyperdimensionneptunia/images/3/35/Neptune3.png/revision/latest?cb=20130522233658)
+![Image](https://www.avert.org/sites/default/files/styles/article_scale_style_780/public/Science.jpg?itok=GsQOoPHn&timestamp=1454087005)
 
 ###**Bad Waifu:**
 ![Image](https://upload.wikimedia.org/wikipedia/commons/b/ba/Bundesarchiv_Bild_101I-299-1805-16%2C_Nordfrankreich%2C_Panzer_VI_%28Tiger_I%29.2.jpg)
